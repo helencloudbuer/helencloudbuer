@@ -1,4 +1,4 @@
-# Hi, I'm Helen 👋  
+# Hi, I'm Helena 👋  
 ### Oi, eu sou a Helen
 
 💻 Student & Future Developer  
